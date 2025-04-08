@@ -1,7 +1,7 @@
 ___________________________________________________________________________________________________________________________________________________________________________________
 **ADEDOYIN543**
 ___________________________________________________________________________________________________________________________________________________________________________________
-A Student ✍| An Upcoming programmer|A Mathematician|
+A Student ✍ | An Upcoming programmer |A Mathematician|
 - An Upcoming Programmer and a Mathematician✍
 - A Proud and Practicing Muslimah
 - 🔭 I’m currently working on 
