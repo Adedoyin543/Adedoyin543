@@ -19,6 +19,6 @@ ________________________________________________________________________________
 
 <p>Email: <a href="mailto:mariamadedoyin52@gmail.com">mariamadedoyin52@gmail.com</a><p/>
   
-[Message me now](https://wa.me/2348062194697?text=Hello%20Zee%20Artistry%2C%20I'm%20interested%20in%20your%20products!)
+Whatsapp: [Message me now](https://wa.me/2348062194697?text=Hello%20Zee%20Artistry%2C%20I'm%20interested%20in%20your%20products!)
 
 
