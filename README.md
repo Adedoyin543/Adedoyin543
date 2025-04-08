@@ -19,7 +19,7 @@ ________________________________________________________________________________
 
 <p>Email: <a href="mailto:mariamadedoyin52@gmail.com">mariamadedoyin52@gmail.com</a><p/>
   
-<a href="https://wa.me/2349043299874" target="_blank">
+<p> Whatsapp: <a href="https://wa.me/2349043299874" target="_blank">
   <i class="fab fa-whatsapp"></i> Chat on WhatsApp
-</a>
+</a></p>
 
