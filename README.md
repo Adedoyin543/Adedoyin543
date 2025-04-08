@@ -1,5 +1,4 @@
-## Hi there 👋
-- I'm Maryam😍
+**MARYAM ADEDOYIN OBE**
 - A 300lvl Student of Federal University of Agriculture, Abeokuta
 - An Upcoming Programmer and a Mathematician✍
 - A Proud and Practicing Muslimah
