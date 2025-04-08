@@ -15,4 +15,4 @@ Bsc, Mathematics,Federal University of Agriculture Abeokuta 2026
 ___________________________________________________________________________________________________________________________________________________________________________________
 **CONTACT ME**
 
-<a href="mailto:mariamadedoyin52@gmail.com">Email</a>
+<p>Email:<a href="mailto:mariamadedoyin52@gmail.com">mariamadedoyin@gmail.com</a><p/>
