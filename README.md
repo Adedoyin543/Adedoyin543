@@ -11,8 +11,10 @@ A Member/Learner at Hamzatronics Technologies Camp, Abeokuta, Ogun State Nigeria
 ___________________________________________________________________________________________________________________________________________________________________________________
 **EDUCATION**
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-Bsc, Mathematics,Federal University of Agriculture Abeokuta 2026
+Bsc in Mathematics
+
+Federal University of Agriculture Abeokuta 
 ___________________________________________________________________________________________________________________________________________________________________________________
 **CONTACT ME**
 
-<p>Email:<a href="mailto:mariamadedoyin52@gmail.com">mariamadedoyin@gmail.com</a><p/>
+<p>Email: <a href="mailto:mariamadedoyin52@gmail.com">mariamadedoyin52@gmail.com</a><p/>
