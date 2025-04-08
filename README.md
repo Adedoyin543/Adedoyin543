@@ -1,6 +1,6 @@
-**ADEDDOYIN543**
 ___________________________________________________________________________________________________________________________________________________________________________________
-- A 300lvl Student of Federal University of Agriculture, Abeokuta
+**ADEDOYIN543**
+A Student ✍| An Upcoming programmer|A Mathematician|
 - An Upcoming Programmer and a Mathematician✍
 - A Proud and Practicing Muslimah
 - 🔭 I’m currently working on 
